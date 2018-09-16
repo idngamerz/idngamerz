@@ -1,2 +1,2 @@
-# idngamerz
+# IDN Gamerz
 Idn Gamerz, Download Game Android.
